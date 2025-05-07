@@ -17,19 +17,28 @@
 
 
 ⌗ㆍノIᖴ I IᑎT/ᑕᑌᗪᗪᒪᕮ ᗩᑎᗪ/Oᖇ ᕼIᗪᕮ ᗯITᕼ YOᑌ, IT ᗰᕮᗩᑎS : ❛🍃❛
-⌗ㆍノYOᑌ Sᕮᕮᗰ ᑕOOᒪ ! 
+
+⌗ㆍノYOᑌ Sᕮᕮᗰ ᑕOOᒪ !
+
 ⌗ㆍノI ᒪIKᕮ YOᑌᖇ SKIᑎ/ᑭOᑎY
+
 ⌗ㆍノ I ᗯᗩᑎᑎᗩ ᗷᕮ ᖴᖇIᕮᑎᗪS
 
 
 🍎『Iᖴ I ᗪOᑎ'T ᖇᕮSᑭOᑎᗪ !! 』 💚
+
 ╰┈➤ SᒪᕮᕮᑭIᑎG
+
 ╰┈➤ OFFTAB / AFK
+
 ╰┈➤ PLAYING GAMES 
 
 
 ❀﹒💣﹒TᕼIᑎGS ᑌ SᕼOᑌᒪᗪ KᑎOᗯ !﹒
+
 ﹕ᗯIᒪᒪ ᗷᒪOᑕK/ᕼIᗪᕮ Iᖴ ᑌᑎᑕOᗰᖴOᖇTᗩᗷᒪᕮ
+
 ﹕Iᖴ YOᑌ ᕼᗩᐯᕮ SOᗰᕮTᕼIᑎG ᗩGᗩIᑎST ᗰY ᖴᖇIᕮᑎᗪS, I ᗯIᒪᒪ ᗷᕮ ᗩGᗩIᑎST YOᑌ TOO, I ᗪOᑎ'T ᑕᗩᖇᕮ.
+
 ﹕__ᑎOT__ Tᕼᕮ ᗷᕮST Iᑎ ᑕOᗰᖴOᖇTIᑎG, SO ᗪOᑎ'T ᕮ᙭ᑭᕮᑕT IT ᖴᖇOᗰ ᗰᕮ. (I'ᒪᒪ TᖇY Iᖴ YOᑌ ᗰᕮᗩᑎ ᗩ ᒪOT TO ᗰᕮ.)
 
