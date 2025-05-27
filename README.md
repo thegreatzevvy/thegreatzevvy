@@ -48,3 +48,11 @@ I DO NOT SUPPORT VIVZIEPOP !!!
 
 ﹕__ᑎOT__ Tᕼᕮ ᗷᕮST Iᑎ ᑕOᗰᖴOᖇTIᑎG, SO ᗪOᑎ'T ᕮ᙭ᑭᕮᑕT IT ᖴᖇOᗰ ᗰᕮ. (I'ᒪᒪ TᖇY Iᖴ YOᑌ ᗰᕮᗩᑎ ᗩ ᒪOT TO ᗰᕮ.)
 
+
+ 🩸 ── .✦ STᗩTᑌS ᗰᕮᗩᑎIᑎGS 🔪
+
+ᛝ ᒪOOKIᑎG ᖴOᖇ ᑕᕼᗩT/ᖇOᒪᑭᒪᗩY ; ᒪᖴ SOᗰᕮOᑎᕮ TO TᗩᒪK TO.
+
+ᛝ  ᗷᑌSY ; OᖴᖴTᗩᗷ, Oᖇ ᗩᖴK.
+
+ᛝ  OᖴᖴᒪIᑎᕮ ; ᑎOT Iᑎ Tᕼᕮ ᗰOOᗪ TO TᗩᒪK ᗯITᕼ ᑭᕮOᑭᒪᕮ. ᑌᑎᒪᕮSS YOᑌ'ᖇᕮ ᑕᒪOSᕮ ᗯITᕼ ᗰᕮ.
