@@ -1,6 +1,6 @@
-I DO NOT SUPPORT VIVZIEPOP !!!
+< Allie , Jade 3
 
-![download (19)](https://github.com/user-attachments/assets/53802558-1b80-4fd6-ac15-badf43b0e683)
+![download (21)](https://github.com/user-attachments/assets/e3aa72f5-f299-448e-a1a7-f15079f4708b)
 
 
 
