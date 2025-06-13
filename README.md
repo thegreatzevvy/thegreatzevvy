@@ -1,6 +1,7 @@
 < Allie , Jade 3
 
-![Uploading c55ffab214fe5bb9f65424f7ac67c6be.jpg…]()
+![c55ffab214fe5bb9f65424f7ac67c6be](https://github.com/user-attachments/assets/60e8a0ca-8e12-4766-bf75-d021e6b38d6a)
+
 
 
 
