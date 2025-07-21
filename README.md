@@ -1,10 +1,5 @@
 < Allie , Jade 3
 
-![146eff4258332805ecee4e7d77df289c](https://github.com/user-attachments/assets/5aac0245-59bb-4c08-b1f4-2022ad20424c)
-
-
-
-
 
 
 
