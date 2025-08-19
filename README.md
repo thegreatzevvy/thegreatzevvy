@@ -1,12 +1,11 @@
-< Allie , Jade 3
 
 
-
+<img width="546" height="457" alt="_𝐜𝐮𝐭𝐞__-removebg-preview" src="https://github.com/user-attachments/assets/2b029ceb-b2a0-4546-98db-9124eb47a11f" />
 
 
 
 ‧₊˚ ⋅ ᘔᕮᐯᗩSTIᗩᑎ    ☾  SᕮᗷᗩSTIᗩᑎ
-      `” The world hasn't ended yet. „`
+      `” I'd move on, and probably forget about you. „`
  
             ‧₊˚ ⋅ ᕼᕮ ♰ ᕼIᗰ
 
