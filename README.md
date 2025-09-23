@@ -1,6 +1,8 @@
 
+Art by me !! <
 
-<img width="546" height="457" alt="_𝐜𝐮𝐭𝐞__-removebg-preview" src="https://github.com/user-attachments/assets/2b029ceb-b2a0-4546-98db-9124eb47a11f" />
+<img width="480" height="480" alt="526670754_809415908255441_4447707780097404411_n" src="https://github.com/user-attachments/assets/5f82c825-dcd3-4d3f-a9d9-0490a15e7bdc" />
+
 
 
 
