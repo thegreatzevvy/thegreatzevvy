@@ -1,7 +1,8 @@
 
 Art by me !! <
 
-<img width="480" height="480" alt="526670754_809415908255441_4447707780097404411_n" src="https://github.com/user-attachments/assets/5f82c825-dcd3-4d3f-a9d9-0490a15e7bdc" />
+![#2067571 - safe, screencap, sunset shimmer, human, equestria girls, g4, my little pony equestria girls_ choose your own ending, wake up!, wake up!_ pinkie pie, animated, cropped, cute, dancing, faic, female, geode ](https://github.com/user-attachments/assets/0862b146-6106-480b-81ac-5fb087739f58)
+
 
 
 
