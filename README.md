@@ -1,5 +1,5 @@
 
-Art by me !! <
+me irl
 
 ![#2067571 - safe, screencap, sunset shimmer, human, equestria girls, g4, my little pony equestria girls_ choose your own ending, wake up!, wake up!_ pinkie pie, animated, cropped, cute, dancing, faic, female, geode ](https://github.com/user-attachments/assets/0862b146-6106-480b-81ac-5fb087739f58)
 
@@ -7,14 +7,14 @@ Art by me !! <
 
 
 
-‧₊˚ ⋅ ᘔᕮᐯᗩSTIᗩᑎ    ☾  SᕮᗷᗩSTIᗩᑎ
-      `” I'd move on, and probably forget about you. „`
+‧₊˚ ⋅ ‧₊˚ ⋅ SᑌᑎᑎY     ☾  Sᑌᑎ
+      `” twilight , you remember me right? „`
  
             ‧₊˚ ⋅ ᕼᕮ ♰ ᕼIᗰ
 
-     @ `(TᕼᕮGᖇᕮᗩTᘔᕮᐯ) *?* .ᐟ`
+     @ `(.SSᑌᑎᑎᕮI) *?* .ᐟ`
 
-╰┈➤ {ᖴᗩᐯ ᑭᕮOᑭᒪᕮ}>>> ᗯᒪᖴᑭᑕK, JADAAA<3, ᐯᗩᖇIᗩᑎ!!!, ᒍᑌᑎO!!!! , ᗰᕮTᖇO, ᗯIᑎG!!, KOI, ᗩᑎᗪ ᖇOᑎI!!!! 
+╰┈➤ {ᖴᗩᐯ ᑭᕮOᑭᒪᕮ}>>> ᗯᒪᖴᑭᑕK, JADAAA<3, ᐯᗩᖇIᗩᑎ!!!, ᒍᑌᑎO!!!! , ᗰᕮTᖇO, ᗩᑎIKᗩ ᗩᑎᗪ ᐯOᑎSᕼᕮᖇ 
 
 ─── ⋆⋅ ♰ ⋅⋆ ───
 
