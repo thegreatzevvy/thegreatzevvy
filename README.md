@@ -1,7 +1,7 @@
 
 me irl
 
-![#2067571 - safe, screencap, sunset shimmer, human, equestria girls, g4, my little pony equestria girls_ choose your own ending, wake up!, wake up!_ pinkie pie, animated, cropped, cute, dancing, faic, female, geode ](https://github.com/user-attachments/assets/0862b146-6106-480b-81ac-5fb087739f58)
+![download (9)](https://github.com/user-attachments/assets/b849152c-663b-4d2c-a90a-51802f9f38fd)
 
 
 
