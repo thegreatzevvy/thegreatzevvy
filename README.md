@@ -1,7 +1,8 @@
 
-me irl
+me and her
 
-![download (9)](https://github.com/user-attachments/assets/b849152c-663b-4d2c-a90a-51802f9f38fd)
+<img width="736" height="414" alt="flash header" src="https://github.com/user-attachments/assets/2f88d8e8-04bc-4c29-b10e-2a1cd43306bc" />
+
 
 
 
