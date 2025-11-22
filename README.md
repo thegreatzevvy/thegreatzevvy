@@ -1,7 +1,5 @@
 
-me and her
-
-<img width="736" height="414" alt="flash header" src="https://github.com/user-attachments/assets/2f88d8e8-04bc-4c29-b10e-2a1cd43306bc" />
+I LOVE MY WIFE
 
 
 
