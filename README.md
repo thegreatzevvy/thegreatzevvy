@@ -1,8 +1,8 @@
 ℇ  ₊ 
 
 
-⠀་། ͡ ⠀evanz , or zev⠀⠀⠀⠀⠀◟ ͜e　 he ⠀ him
+⠀་། ͡ ⠀bolt , or zev⠀⠀⠀⠀⠀◟ ͜e　 he ⠀ him
 
-⠀  ❛e⠀⠀13 ⠀y.o⠀⠀౨𓏫 ⠀all is forgiven.  ⠀ 𐦯
+⠀  ❛e⠀⠀14 ⠀y.o⠀⠀౨𓏫 ⠀speaking of hobbies, i bet yours is the same, jirou!  ⠀ 𐦯
 
-ཫ ⠀⠀ ⠀| ͜͝ | ͜͝ | ͜͝ | ͜͝ | ⠀⠀ c+h PLSSSPSPS , w2i⠀ ⠀ ᰨ ❛ ,  /ﾉ)
+ཫ ⠀⠀ ⠀| ͜͝ | ͜͝ | ͜͝ | ͜͝ | ⠀⠀ c+h PLSSSPSPS ,  ⠀ ᰨ ❛ ,  /ﾉ)
